@@ -10,5 +10,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... Git projects
 - 📫 How to reach me: ... praveenvr48@gmail.com
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ... I'm about gto build six pack
+- ⚡ Fun fact: ... I'm about to build six pack
 
